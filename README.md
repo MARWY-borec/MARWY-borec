@@ -8,6 +8,6 @@
 - 💬 Ask me about what ever you want.
 - 📫 How to reach me: Try to figure it out :)
 - 😄 Pronouns: Nothing
-- ⚡ Fun fact: Nothing  
+- ⚡ Fun fact: I love La Casa De Papel
 
 ############################################################
